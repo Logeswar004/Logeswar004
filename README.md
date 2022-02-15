@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Logeswar004
-- 👀 I’m interested in ...drawing and designing works
 - 🌱 I’m currently learning ...final year in B.E civil engineering
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me :9344629072
